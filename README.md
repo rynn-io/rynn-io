@@ -1,4 +1,4 @@
-👋 Hi, I’m @ryneio
+👋 Hi, I’m @rynnio
 
 👀 I’m interested in anything designs, AI and machine learning, quality of life through technology and gaming
 

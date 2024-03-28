@@ -4,4 +4,4 @@
 
 🌱 I’m currently learning NextJS 13 App Router
 
-📫 Reach me at rynnio@outlook.com
+📫 Reach me at ryn161923@gmail.com
